@@ -5,4 +5,4 @@
 * salt
 
 ## Instructions
-peel the thing...
+* peel and put one avocado into a bowl
